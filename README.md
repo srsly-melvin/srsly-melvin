@@ -2,6 +2,7 @@
   <img src="updgithub.png" alt="hithere" width="45%">
   <img src="github2.png" alt="hithere" width="45%">
 
+* not guaranteed, i have my own preferences when joining hosts
 pls read the links on the left to know me further bcuz i rlly dont know html code
 
 <!--
