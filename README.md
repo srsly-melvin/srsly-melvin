@@ -1,9 +1,11 @@
-## wip intro im lerning
+<p align="center">
+  <img src="https://github.com/srsly-melvin/srsly-melvin/blob/main/github.png" alt="hithere" width="50%">
+pls read the links on the left to know me further bcuz i rlly dont know html code
 
 <!--
 **srsly-melvin/srsly-melvin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<!-- Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
