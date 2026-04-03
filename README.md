@@ -1,5 +1,7 @@
-<p align="center">
-  <img src="https://github.com/srsly-melvin/srsly-melvin/blob/main/github.png" alt="hithere" width="50%">
+<p align="left">
+  <img src="github.png" alt="hithere" width="40%">
+  <img src="github2.png" alt="hithere" width="40%">
+
 pls read the links on the left to know me further bcuz i rlly dont know html code
 
 <!--
