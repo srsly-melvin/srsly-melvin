@@ -5,7 +5,7 @@
 <p align="right">
 * not guaranteed, i have my own preferences when joining hosts
 <p align="right">
-* i'm also pretty awkwardly social or smth like that
+* i'm also pretty socially awkward or smth like that
 
 ---------------------------------------
 
