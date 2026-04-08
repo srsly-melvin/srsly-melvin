@@ -11,6 +11,8 @@
 
 pls read the links on the left to know me further bcuz i rlly dont know html code
 
+**DEFECTS: BAD 'TOP - my laptop sometimes shuts down randomly and i disconnect with it so if i suddenly dissappeared pls wait like 30 seconds or smth**
+
 <!--
 **srsly-melvin/srsly-melvin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
