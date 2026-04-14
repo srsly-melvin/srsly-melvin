@@ -14,7 +14,8 @@ pls read the links on the left to know me further
 
 <details><summary>
   DEFECTS/problems: </summary>
-  ATABURNOUT : been burnt out filling peoples atabooks!! so i might either skip some or sign ur ata less joyful.. sorre!!! [DURATION: ~??]
+  ATABURNOUT : been burnt out filling peoples atabooks!! so i might either skip some or sign ur ata less joyful.. sorre!!! actually they lowk punished my bum and put me on a cooldown bcuz i made soo many signs LOL [DURATION: ~??]
+  
   OVERTIME?! : I cannot keep up the tempo! will lose motivation during the hosting/roleplay overtime, I'll try my best to support though! [DURATION: ~??]</details>
 
 <!--
