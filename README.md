@@ -13,7 +13,7 @@ pls read the links on the left to know me further bcuz i rlly dont know html cod
 
 ***`DEFECTS:`***
 - ***`ATABURNOUT : been burnt out filling peoples atabooks!! so i might either skip some or sign ur ata less joyful.. sorre!!!`*** *`[DURATION: ~??]`*
-- forgot to remov this #oops
+- ***`OVERTIME?! : I cannot keep up the tempo! will lose motivation during the hosting/roleplay overtime, I'll try my best to support though!`*** *`[DURATION: ~??]`*
 <!--
 **srsly-melvin/srsly-melvin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
