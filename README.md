@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=srsly-melvin&label="lets+take+a+look"+says&color=3f94ee) $\tiny{\textsf{people}}$
+![](https://komarev.com/ghpvc/?username=srsly-melvin&label="lets+take+a+look"+says&color=3f94ee&style=plastic) $\tiny{\textsf{people}}$
 <p align="left">
   <img src="updgithub.png" alt="hithere" width="45%">
   <img src="github2.png" alt="hithere" width="45%">
@@ -10,13 +10,12 @@
 
 ---------------------------------------
 
-pls read the links on the left to know me further bcuz i rlly dont know html code
+pls read the links on the left to know me further
 
-***`DEFECTS:`***
-- ***`ATABURNOUT : been burnt out filling peoples atabooks!! so i might either skip some or sign ur ata less joyful.. sorre!!!`*** *`[DURATION: ~??]`*
-- ***`OVERTIME?! : I cannot keep up the tempo! will lose motivation during the hosting/roleplay overtime, I'll try my best to support though!`*** *`[DURATION: ~??]`*
-
-in the middle of editing ^_^
+<details><summary>
+  DEFECTS/problems: </summary>
+  ATABURNOUT : been burnt out filling peoples atabooks!! so i might either skip some or sign ur ata less joyful.. sorre!!! [DURATION: ~??]
+  OVERTIME?! : I cannot keep up the tempo! will lose motivation during the hosting/roleplay overtime, I'll try my best to support though! [DURATION: ~??]</details>
 
 <!--
 **srsly-melvin/srsly-melvin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
