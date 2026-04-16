@@ -10,13 +10,24 @@
 
 ---------------------------------------
 
-pls read the links on the left to know me further
+pls read the links on the left to know me further (in terms of fandoms or other stuff that isn't pony town related)
 
-<details><summary>
-  DEFECTS/problems: </summary>
-  ATABURNOUT : been burnt out filling peoples atabooks!! so i might either skip some or sign ur ata less joyful.. sorre!!! actually they lowk punished my bum and put me on a cooldown bcuz i made soo many signs LOL [DURATION: ~??]
+<details align="middle"><summary>DEFECTS/problems: </summary>
+  <p>ATABURNOUT : been burnt out filling peoples atabooks!! so i might either skip some or sign ur ata less joyful.. sorre!!! [DURATION: ~??]</p>
   
-  OVERTIME?! : I cannot keep up the tempo! will lose motivation during the hosting/roleplay overtime, I'll try my best to support though! [DURATION: ~??]</details>
+  
+  </details></p>
+
+<details align="middle"><summary>
+  PONY TOWN RELATED:</summary>
+  <p>pls give some space!! i dont mind covering w/ skin or text or boops or kisses but please, don't randomly go hug me or boop me if you aren't required to.</p>
+  <p>i can only use a sort of narrative style roleplay whenever i'm in a roleplay, obv's</p>
+  <p>i have a short and understandable tutorial of how to play oc maker! sort of, if u need it DURING an oc maker, i'll happily join the party and paste my tutorial ^_^ (if u want it but isn't hosting an oc maker than go ***k urself, sorry, ok i mean't like, for safety purposes i'll not hand the tutorial to avoid stealing i guess.)</p>
+  <p>hey so my mouse double clicks on accident sometimes, might look at ur direction on accident so... dont take it weird pls!!!</p>
+  <p></p></details>
+
+$\color{#3f94ee}\textsf{updated since 4/16/26 (dd/mm)}}$
+
 
 <!--
 **srsly-melvin/srsly-melvin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
