@@ -26,7 +26,7 @@ pls read the links on the left to know me further (in terms of fandoms or other 
   <p>hey so my mouse double clicks on accident sometimes, might look at ur direction on accident so... dont take it weird pls!!!</p>
   <p></p></details>
 
-$\color{#3f94ee}\textsf{updated since 4/16/26 (dd/mm)}}$
+$\color{#3f94ee}{\textsf{updated since 4/16/26 (dd/mm)}}$
 
 
 <!--
