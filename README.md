@@ -14,7 +14,6 @@ pls read the links on the left to know me further (in terms of fandoms or other 
 
 <details align="middle"><summary>DEFECTS/problems: </summary>
   <p>ATABURNOUT : been burnt out filling peoples atabooks!! so i might either skip some or sign ur ata less joyful.. sorre!!! [DURATION: ~??]</p>
-  <p><b>MINESWEEPER+ VERSION 3 IS OOUUTTTTT</b> : will be <i>offtabbing</i> alot due to the version being buggy and i wanna play it 100% no bugs, i've been waiting for it for centuries. [DURATION: -24H]</p>
   
   </details></p>
 
@@ -26,7 +25,7 @@ pls read the links on the left to know me further (in terms of fandoms or other 
   <p>hey so my mouse double clicks on accident sometimes, might look at ur direction on accident so... dont take it weird pls!!!</p>
   <p></p></details>
 
-$\color{#3f94ee}{\textsf{last updated 4/18/26 (dd/mm)}}$
+$\color{#3f94ee}{\textsf{last updated 4/19/26 (dd/mm)}}$
 
 
 <!--
