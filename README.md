@@ -25,7 +25,7 @@ pls read the links on the left to know me further (in terms of fandoms or other 
   <p>hey so my mouse double clicks on accident sometimes, might look at ur direction on accident so... dont take it weird pls!!!</p>
   <p>https://melvin.nekoweb.org/bout_ponytown sshhh... heres my (unofficial) pony town guide/info nekoweb.. will update from time to time...</p></details>
 
-$\color{#3f94ee}{\textsf{last updated 4/19/26 (dd/mm)}}$
+$\color{#3f94ee}{\textsf{last updated 4/23/26 (mm/dd)}}$
 
 
 <!--
