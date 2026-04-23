@@ -23,7 +23,7 @@ pls read the links on the left to know me further (in terms of fandoms or other 
   <p>i can only use a sort of narrative style roleplay whenever i'm in a roleplay, obv's</p>
   <p>i have a short and understandable tutorial of how to play oc maker! sort of, if u need it DURING an oc maker, i'll happily join the party and paste my tutorial ^_^ (if u want it but isn't hosting an oc maker than go ***k urself, sorry, ok i mean't like, for safety purposes i'll not hand the tutorial to avoid stealing i guess.)</p>
   <p>hey so my mouse double clicks on accident sometimes, might look at ur direction on accident so... dont take it weird pls!!!</p>
-  <p></p></details>
+  <p>https://melvin.nekoweb.org/bout_ponytown sshhh... heres my (unofficial) pony town guide/info nekoweb.. will update from time to time...</p></details>
 
 $\color{#3f94ee}{\textsf{last updated 4/19/26 (dd/mm)}}$
 
