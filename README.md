@@ -27,7 +27,7 @@ planning on making a rentry specifically for all of my fandoms and interests (in
   <p>hey so my mouse double clicks on accident sometimes, might look at ur direction on accident so... dont take it weird pls!!!</p>
   <p>https://melvin.nekoweb.org/bout_ponytown sshhh... heres my (unofficial) pony town guide/info nekoweb.. will update from time to time...</p></details>
 
-$\color{#3f94ee}{\textsf{last updated 4/23/26 (mm/dd)}}$
+$\color{#3f94ee}{\textsf{last updated 5/23/26 (mm/dd)}}$
 
 
 <!--
