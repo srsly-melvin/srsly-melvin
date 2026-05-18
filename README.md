@@ -16,7 +16,7 @@ planning on making a rentry specifically for all of my fandoms and interests (in
 
 <details align="middle"><summary>DEFECTS/problems: </summary>
   <p>ATABURNOUT : been burnt out filling peoples atabooks!! so i might either skip some or sign ur ata less joyful.. sorre!!! [DURATION: ~??]</p>
-  <p>FIRST2LEAVELOSES : lowkenuinely REALLY busy ✌️😭 school duty calls for me [DURATION: ~??]</p>
+  <p>FIRST2LEAVELOSES : lowkenuinely REALLY busy ✌️😭 school duty calls for me (and also bcuz i need to find a job) [DURATION: ~??]</p>
   </details></p>
 
 <details align="middle"><summary>
@@ -27,7 +27,7 @@ planning on making a rentry specifically for all of my fandoms and interests (in
   <p>hey so my mouse double clicks on accident sometimes, might look at ur direction on accident so... dont take it weird pls!!!</p>
   <p>https://melvin.nekoweb.org/bout_ponytown sshhh... heres my (unofficial) pony town guide/info nekoweb.. will update from time to time...</p></details>
 
-$\color{#3f94ee}{\textsf{last updated 5/14/26 (mm/dd)}}$
+$\color{#3f94ee}{\textsf{last updated 5/14?/26 (mm/dd)}}$
 
 
 <!--
