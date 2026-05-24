@@ -12,8 +12,6 @@
 
 pls read the links on the left to know me further (in terms of fandoms or other stuff that isn't pony town related)
 
-planning on making a rentry specifically for all of my fandoms and interests (including like the teeny tiniest likings)
-
 <details align="middle"><summary>DEFECTS/problems: </summary>
   <p>FIRST2LEAVELOSES : lowkenuinely REALLY busy ✌️😭 school duty calls for me (and also bcuz i need to find a job) [DURATION: ~??]</p>
   </details></p>
