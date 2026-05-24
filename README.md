@@ -15,7 +15,6 @@ pls read the links on the left to know me further (in terms of fandoms or other 
 planning on making a rentry specifically for all of my fandoms and interests (including like the teeny tiniest likings)
 
 <details align="middle"><summary>DEFECTS/problems: </summary>
-  <p>ATABURNOUT : been burnt out filling peoples atabooks!! so i might either skip some or sign ur ata less joyful.. sorre!!! [DURATION: ~??]</p>
   <p>FIRST2LEAVELOSES : lowkenuinely REALLY busy ✌️😭 school duty calls for me (and also bcuz i need to find a job) [DURATION: ~??]</p>
   </details></p>
 
