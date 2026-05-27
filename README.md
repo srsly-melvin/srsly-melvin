@@ -21,7 +21,7 @@ pls read the links on the left to know me further (in terms of fandoms or other 
   <p>pls give some space!! i dont mind covering w/ skin or text or boops or kisses but please, don't randomly go hug me or boop me if you aren't required to.</p>
   <p>i can only use a sort of narrative style roleplay whenever i'm in a roleplay, obv's</p>
   <p>hey so my mouse double clicks on accident sometimes, might look at ur direction on accident so... dont take it weird pls!!!</p>
-  <p>https://melvin.nekoweb.org/bout_ponytown sshhh... heres my (unofficial) pony town guide/info nekoweb.. will update from time to time...</p></details>
+  <p>https://melvin.nekoweb.org/bout_ponytown sshhh... heres my (unofficial) pony town guide/info nekoweb.. will update from time to time....</p></details>
 
 $\color{#3f94ee}{\textsf{last updated 5/24/26 (mm/dd)}}$
 
