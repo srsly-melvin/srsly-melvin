@@ -25,7 +25,7 @@ pls read the links on the left to know me further (in terms of fandoms or other 
 
 $\color{#3f94ee}{\textsf{last updated 5/24/26 (mm/dd)}}$
 
-\#planning some
+\#planning something
 
 
 <!--
