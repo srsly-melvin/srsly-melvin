@@ -4,7 +4,7 @@
   <img src="github2.png" alt="hithere" width="45%">
 
 <p align="right">
-* not guaranteed, i have my own preferences when joining hosts
+* not guaranteed, i have my own preferences when joining hostings
 <p align="right">
 * i'm also pretty socially awkward or smth like that
 
@@ -23,8 +23,7 @@ pls read the links on the left to know me further (in terms of fandoms or other 
   <p>hey so my mouse double clicks on accident sometimes, might look at ur direction on accident so... dont take it weird pls!!!</p>
   <p>https://melvin.nekoweb.org/bout_ponytown sshhh... heres my (unofficial) pony town guide/info nekoweb.. will update from time to time....</p></details>
 
-$\color{#3f94ee}{\textsf{last updated 5/24/26 (mm/dd)}}$
-
+$\color{#3f94ee}{\textsf{last updated 6/3/26 (mm/dd)}}$
 
 
 
