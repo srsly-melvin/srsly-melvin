@@ -14,6 +14,7 @@ pls read the links on the left to know me further (in terms of fandoms or other 
 
 <details align="middle"><summary>DEFECTS/problems: </summary>
   <p>FIRST2LEAVELOSES : lowkenuinely REALLY busy ✌️😭 school duty calls for me (and also bcuz i need to find a job)(#frooked) [DURATION: ~??]</p>
+  <p>oh. : [DURATION: ]</p>
   </details></p>
 
 <details align="middle"><summary>
@@ -23,11 +24,11 @@ pls read the links on the left to know me further (in terms of fandoms or other 
   <p>hey so my mouse double clicks on accident sometimes, might look at ur direction on accident so... dont take it weird pls!!!</p></details>
 
 
-$\color{#3f94ee}{\textsf{last updated 6/11/26 (mm/dd)}}$
+$\color{#3f94ee}{\textsf{last updated 6/17/26 (mm/dd)}}$
 
 
 
-[@the-minesweeper](https://github.com/the-minesweeper) alt for c+h, prob for hour-farming too idk :^ tryna get comfy w/ stranger ints
+[@the-minesweeper](https://github.com/the-minesweeper) alt
 
 <!--
 **srsly-melvin/srsly-melvin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
