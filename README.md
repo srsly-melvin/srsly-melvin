@@ -13,7 +13,7 @@
 pls read the links on the left to know me further (in terms of fandoms or other stuff that isn't pony town related)
 
 <details align="middle"><summary>DEFECTS/problems: </summary>
-  <p>FIRST2LEAVELOSES : lowkenuinely REALLY busy ✌️😭 school duty calls for me (and also bcuz i need to find a job)(#frooked) [DURATION: ~??]</p>
+  <p>ATA-BURNOUT : been burnt out/lazy to sign atabooks, might skip or miss a few sorry :( [DURATION: ~??]</p>
   <p>oh. : [DURATION: ]</p>
   </details></p>
 
