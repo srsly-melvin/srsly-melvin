@@ -14,7 +14,6 @@ pls read the links on the left to know me further (in terms of fandoms or other 
 
 <details align="middle"><summary>DEFECTS/problems: </summary>
   <p>ATA-BURNOUT : been burnt out/lazy to sign atabooks, might skip or miss a few sorry :( [DURATION: ~??]</p>
-  <p>oh. : [DURATION: ]</p>
   </details></p>
 
 <details align="middle"><summary>
@@ -24,11 +23,12 @@ pls read the links on the left to know me further (in terms of fandoms or other 
   <p>hey so my mouse double clicks on accident sometimes, might look at ur direction on accident so... dont take it weird pls!!!</p></details>
 
 
-$\color{#3f94ee}{\textsf{last updated 6/17/26 (mm/dd)}}$
+$\color{#3f94ee}{\textsf{last updated 7/1/26 (mm/dd)}}$
 
 
 
 [@the-minesweeper](https://github.com/the-minesweeper) alt
+
 
 
 <!--
