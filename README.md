@@ -14,6 +14,7 @@ pls read the links on the left to know me further (in terms of fandoms or other 
 
 <details align="middle"><summary>DEFECTS/problems: </summary>
   <p>ATA-BURNOUT : been burnt out/lazy to sign atabooks, might skip or miss a few sorry :( [DURATION: ~??]</p>
+  <p>IFORGOT : my commits updates was supposed to be updated to look like a 27 (in gmt+7 timezone) but i forgot cuz of my internship now its RUINED!@!!!!@ [DURATION: ∞]</p>
   </details></p>
 
 <details align="middle"><summary>
