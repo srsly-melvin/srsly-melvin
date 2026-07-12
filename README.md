@@ -29,7 +29,6 @@ pls read the links on the left to know me further (in terms of fandoms or other 
 $\color{#3f94ee}{\textsf{last updated 7/12/26 (mm/dd)}}$
 
 
-
 [@the-minesweeper](https://github.com/the-minesweeper) alt
 
 
