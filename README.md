@@ -30,7 +30,6 @@ $\color{#3f94ee}{\textsf{last updated 7/12/26 (mm/dd)}}$
 
 
 
-
 [@the-minesweeper](https://github.com/the-minesweeper) alt
 
 
