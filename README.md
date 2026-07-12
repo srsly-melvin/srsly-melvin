@@ -19,12 +19,15 @@ pls read the links on the left to know me further (in terms of fandoms or other 
 
 <details align="middle"><summary>
   PONY TOWN RELATED:</summary>
-  <p>pls give some space!! i dont mind covering w/ skin or text or boops or kisses but please, don't randomly go hug me or boop me if you aren't required to.</p>
+  <p>hey so my mouse double clicks on accident sometimes, might look at ur direction on accident so... dont take it weird pls!!!</p>
+  <p>pls give some space!! i dont mind covering w/ skin or text or boops or kisses but please, don't randomly go hug me or boop me if you aren't required to. (this won't count in a regi, scout, etc. though might have instincts to avoid occasionally)</p>
   <p>i can only use a sort of narrative style roleplay whenever i'm in a roleplay, obv's</p>
-  <p>hey so my mouse double clicks on accident sometimes, might look at ur direction on accident so... dont take it weird pls!!!</p></details>
+</details>
 
 
-$\color{#3f94ee}{\textsf{last updated 7/1/26 (mm/dd)}}$
+$\color{#3f94ee}{\textsf{last updated 7/12/26 (mm/dd)}}$
+
+
 
 
 [@the-minesweeper](https://github.com/the-minesweeper) alt
