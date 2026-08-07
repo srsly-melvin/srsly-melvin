@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=srsly-melvin&label="lets+take+a+look"+says&color=3f94ee&style=plastic) $\tiny{\textsf{people}}$
 <p align="left">
   <img src="updgithub.png" alt="hithere" width="45%">
-  <img src="github2.png" alt="hithere" width="45%">
+  <img src="maingit.png" alt="hithere" width="45%">
 
 <p align="right">
 * not guaranteed, i have my own preferences when joining hostings
