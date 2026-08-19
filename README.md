@@ -25,7 +25,7 @@ pls read the links on the left to know me further (in terms of fandoms or other 
 </details>
 
 
-$\color{#3f94ee}{\textsf{last updated 7/12/26 (mm/dd)}}$
+$\color{#3f94ee}{\textsf{last updated 8/19/26 (mm/dd)}}$
 
 
 [@the-minesweeper](https://github.com/the-minesweeper) alt (used for cosplays)
